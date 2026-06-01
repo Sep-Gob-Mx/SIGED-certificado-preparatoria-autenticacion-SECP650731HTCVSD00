@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-SECP650731HTCVSD00
+SECP650731HTCVSD00
